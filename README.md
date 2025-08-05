@@ -64,7 +64,7 @@ Soy una persona **proactiva**, con orientación a resultados, que busca **optimi
 ## 📫 Contacto
 
 - 📧 ventas.ivantrullenque@gmail.com  
-- 🌍 [LinkedIn](https://www.linkedin.com/in/ivantrullenque/) *(agregá tu link si lo tenés)*  
+- 🌍 [LinkedIn](https://www.linkedin.com/in/ivantrullenque/)
 
 ---
 
